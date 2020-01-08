@@ -14,6 +14,11 @@ Susan Connor had always loved backward Paris with its open, old-fashioned oceans
 
 Susan walked over to the window and reflected on her picturesque surroundings. The sun shone like hopping pigeons.
 
+Tout commenca le jour où j'ai passé cette **porte**.
+Cette **porte** se referma *brusquement*, je dirait même *intenionnelement* de la part du mécanisme de fermture.
+**Et là, c'est la catastrophe !**
+**BOUM** mon doigt est coupé en deux ! Ca pisse le **sang** ! Go au urgences. 
+
 
 
   
