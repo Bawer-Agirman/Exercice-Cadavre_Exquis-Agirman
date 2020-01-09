@@ -23,3 +23,5 @@ Cette **porte** se referma _brusquement_, je dirait même _intenionnelement_ de 
 **BOUM** mon doigt est coupé en deux ! Ca pisse le **sang** ! Go au urgences.
 
 Blablabla.
+
+message de la part de Geoffrey
