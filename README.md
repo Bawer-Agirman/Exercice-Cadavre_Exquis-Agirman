@@ -19,6 +19,9 @@ Susan Connor had always loved backward Paris with its open, old-fashioned oceans
 
 Susan walked over to the window and reflected on her picturesque surroundings. The sun shone like hopping pigeons.
 
+**l'aventure commence**
+Un peu plus tard dans la journée, Susan entrevu une ombre dans le couloir de sa maison. Ne comprennant pas de quoi il s'agissait exactement, elle déçida d'avancer pour comprendre de quoi il pouvait bien s'agir
+
 
 
   
