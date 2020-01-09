@@ -1,5 +1,6 @@
 # Exercice-Cadavre_Exquis-Agirman
 
+
 ## Le vieux sage
 
 **Le vieux sage** est né au Japon. Il a 73 ans. Il aime manger des enfants pour nourrir sa sagesse. Il pense que manger le cerveau des enfants lui permettra de s'élever dans le _paradis des sages_. Ce qu'il ne sait pas, c'est qu'il a fait un pacte avec le **DIABLE** ! Celui-ci a dit :
@@ -20,6 +21,7 @@ Susan walked over to the window and reflected on her picturesque surroundings. T
 **l'aventure commence**
 Un peu plus tard dans la journée, Susan entrevu une ombre dans le couloir de sa maison. Ne comprennant pas de quoi il s'agissait exactement, elle déçida d'avancer pour comprendre de quoi il pouvait bien s'agir
 
+
 **Le début de la menace**
 Le sang glacé, les membres crispés d'une terreur indiscible induite par cette mysthérieuse créature, Susan avança péniblement jusqu'a entrevoir cette ombre qui se dévoila alors à elle...
 
@@ -27,3 +29,4 @@ Le sang glacé, les membres crispés d'une terreur indiscible induite par cette 
 Dans un élan de panique, elle se jetta sur la bête, prête à en découdre.  
 Elle se rendit alors compte que la créature qui la terrifiait tant n'était autre qu'un chat borgne et plein de cicatrices.  
 Ce chat était vraiment dans un piteux état et anormalement imposant, il avait l'air d'avoir vécu beaucoup d'aventures...
+
