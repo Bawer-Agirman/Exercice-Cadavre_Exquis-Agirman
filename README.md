@@ -21,4 +21,4 @@ Un peu plus tard dans la journée, Susan entrevu une ombre dans le couloir de sa
 Le sang glacé, les membres crispés d'une terreur indiscible induite par cette mysthérieuse créature, Susan avança péniblement jusqu'a entrevoir cette ombre qui se dévoila alors à elle...
 
 
-  
+
